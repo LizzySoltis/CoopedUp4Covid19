@@ -12,6 +12,8 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
 
 #### Music/ Performing Arts
  - [Met Opera Livestream](https://www.vulture.com/2020/03/coronavirus-the-metropolitan-opera-to-stream-free-operas.html)
+ - [Boiler Room Livestream (underground music)](https://www.facebook.com/boilerroom.tv/?__tn__=%2CdkC-R&eid=ARBUi3RjBHxrUhiWJazCFvI4wwnvw6s8KCxnUXXZLoGoI3Zmx5K2RafGNxxi4byhyCc-GkrwkLnUxhjl&hc_ref=ARQcg8hP3FO3BPDVo9THNXhVXTsu036Druyrkk9VuNoX_fCEO9konkaSrLdKu45CDCw)
+ - [Piano Bar Livestream](https://www.timeout.com/newyork/news/maries-crisis-is-staying-open-as-a-virtual-piano-bar-every-night-031920?fbclid=IwAR2K2z0K6NPyrxZXdwppSfVaDnz25yX1VRrF9JSfB_7KBW5HUTECJTsakXg)
 
 
 #### Crafts
