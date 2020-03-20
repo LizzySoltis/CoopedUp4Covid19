@@ -49,6 +49,8 @@
 
  - [Big list of online read alongs](https://www.weareteachers.com/virtual-author-activities/?fbclid=IwAR3yy40WuumueHvOA9wJWzb9LE99n73TtZXJH_hEbxwBUbmNHpAyswl2QK0#.XnKds9fXdqw.facebook)
 
+ - [Free stories for kids of all ages](https://stories.audible.com/discovery)
+
 
 #### Writing
  - [Daily Picture Prompts](https://www.nytimes.com/column/learning-picture-prompt?fbclid=IwAR2FfKUAY0Ty5jbFHuIhf-HuQso9W8IrMFPtcKH1A_sD5G5OMU7YPNDWl2w)
