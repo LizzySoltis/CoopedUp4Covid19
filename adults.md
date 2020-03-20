@@ -6,6 +6,7 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
 
 #### Dance/Yoga
  - [Debbie Allen is hosting classes on Instagram Live](https://twitter.com/msdebbieallen/status/1239921015196536833?s=21)
+ - [Steezy: Encouraging social distancing through free dance classes](https://www.steezy.co/free)
  - [Sweat Yoga (but in your own home)](https://vimeo.com/sweatyoga)
  - [CorePower has free online videos as well](https://www.corepoweryogaondemand.com/keep-up-your-practice)
 
@@ -28,3 +29,8 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
 
 #### Reading
  - [Just read all of JSTOR, because it's free now!](http://www.universitytimes.ie/2020/03/jstor-makes-database-accessible-to-the-public/?fbclid=IwAR0FuFp8RIAGdtvhRJdZWc-PiFc5xj8FMB6LAqHeOvUlK6ZNNBlWXHD9MJ4)
+
+#### Fun activities with others
+ - [Netflix Party](https://www.netflixparty.com/)
+ - [A remote escape room](https://www.tryreason.com/lola-in-space/)
+ - [Async video chat with individuals or groups](https://www.marcopolo.me/)
