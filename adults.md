@@ -18,7 +18,7 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
  - [Piano Bar Livestream](https://www.timeout.com/newyork/news/maries-crisis-is-staying-open-as-a-virtual-piano-bar-every-night-031920?fbclid=IwAR2K2z0K6NPyrxZXdwppSfVaDnz25yX1VRrF9JSfB_7KBW5HUTECJTsakXg)
 
 #### Languages
-[Language courses, including conversation practice](https://bendlanguageinstitute.com/courses/)
+ - [Language courses, including conversation practice](https://bendlanguageinstitute.com/courses/)
 
 #### Crafts
  - [Free classes on Brit + Co ](https://www.instagram.com/p/B92RLmyAXZn/)
@@ -27,4 +27,4 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
  - [Covid-19 Themed](https://p198.p4.n0.cdn.getcloudapp.com/items/kpuY8Zdz/Image%202020-03-16%20at%2011.31.28%20AM.png?v=1395645f6506d726ee9b03efa8da5d2b)
 
 #### Reading
-[Just read all of JSTOR, because it's free now!](http://www.universitytimes.ie/2020/03/jstor-makes-database-accessible-to-the-public/?fbclid=IwAR0FuFp8RIAGdtvhRJdZWc-PiFc5xj8FMB6LAqHeOvUlK6ZNNBlWXHD9MJ4)
+ - [Just read all of JSTOR, because it's free now!](http://www.universitytimes.ie/2020/03/jstor-makes-database-accessible-to-the-public/?fbclid=IwAR0FuFp8RIAGdtvhRJdZWc-PiFc5xj8FMB6LAqHeOvUlK6ZNNBlWXHD9MJ4)
