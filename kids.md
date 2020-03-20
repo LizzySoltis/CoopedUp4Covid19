@@ -14,6 +14,7 @@
  - [Drawing class every day at 10am PDT with Wendy Macnaughton](https://instagram.com/wendymac?igshid=1dl2fz6xu425v&fbclid=IwAR0PjuZCNmi18m0-p1eL47QsSqwCwIqFTsEBt6ZRc584wapdEh5pWr-8y50)
  - [Virtual Tour of an Art Museum](https://www.travelandleisure.com/attractions/museums-galleries/museums-with-virtual-tours
 )
+ - [Paint Bar is livestreaming various craft projects](https://www.facebook.com/pg/ThePaintBar/posts/?ref=page_internal)
 
 #### Kids Music
  - [Tom Chapin & The Chapin Sisters Stay-at-Home Free Concerts! (daily at 11am PDT)](https://www.facebook.com/events/1047569265628459/)
