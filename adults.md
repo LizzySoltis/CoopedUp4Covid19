@@ -4,11 +4,12 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
 #### Meditation
  - [Headspace has a free offering to help during these Covid-19 times](https://www.headspace.com/covid-19)
 
-#### Dance/Yoga
+#### Movement (Dance, Yoga, Workout)
  - [Debbie Allen is hosting classes on Instagram Live](https://twitter.com/msdebbieallen/status/1239921015196536833?s=21)
  - [Steezy: Encouraging social distancing through free dance classes](https://www.steezy.co/free)
  - [Sweat Yoga (but in your own home)](https://vimeo.com/sweatyoga)
  - [CorePower has free online videos as well](https://www.corepoweryogaondemand.com/keep-up-your-practice)
+ - [Orangetheory Fitness At-Home Workouts](https://www.youtube.com/playlist?list=PLeSKM0GTcnfE1c-yI8y-x5O2rdM3X9mZD)
 
 
 #### Music/ Performing Arts
@@ -17,6 +18,8 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
  - [The Actors Fund producing online mini-Broadway shows every day](https://secretnyc.co/broadway-stars-nightly-performances/?fbclid=IwAR2gkN4U2XnmAI1LuOUNit3u3PRmWQLuDaO1N9fTZeuKqmi_YJjp8EqUOFI)
  - [Boiler Room Livestream (underground music)](https://www.facebook.com/boilerroom.tv/?__tn__=%2CdkC-R&eid=ARBUi3RjBHxrUhiWJazCFvI4wwnvw6s8KCxnUXXZLoGoI3Zmx5K2RafGNxxi4byhyCc-GkrwkLnUxhjl&hc_ref=ARQcg8hP3FO3BPDVo9THNXhVXTsu036Druyrkk9VuNoX_fCEO9konkaSrLdKu45CDCw)
  - [Piano Bar Livestream](https://www.timeout.com/newyork/news/maries-crisis-is-staying-open-as-a-virtual-piano-bar-every-night-031920?fbclid=IwAR2K2z0K6NPyrxZXdwppSfVaDnz25yX1VRrF9JSfB_7KBW5HUTECJTsakXg)
+ - [Quarantine Sing-a-long! Song of the day posted ~@3PM PST, sing @7PM PST](https://www.facebook.com/groups/quarantinesingalong/)
+ - [Garth Brooks on Facebook Live 7 p.m. ET Monday 3/23](https://www.facebook.com/GarthBrooks/)
 
 #### Languages
  - [Language courses, including conversation practice](https://bendlanguageinstitute.com/courses/)
