@@ -20,6 +20,7 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
  - [Piano Bar Livestream](https://www.timeout.com/newyork/news/maries-crisis-is-staying-open-as-a-virtual-piano-bar-every-night-031920?fbclid=IwAR2K2z0K6NPyrxZXdwppSfVaDnz25yX1VRrF9JSfB_7KBW5HUTECJTsakXg)
  - [Quarantine Sing-a-long! Song of the day posted ~@3PM PST, sing @7PM PST](https://www.facebook.com/groups/quarantinesingalong/)
  - [Garth Brooks on Facebook Live 7 p.m. ET Monday 3/23](https://www.facebook.com/GarthBrooks/)
+ - [Berlin Philharmonic Digital Concert Hall (free for a time)](https://www.digitalconcerthall.com/en/home)
 
 #### Languages
  - [Language courses, including conversation practice](https://bendlanguageinstitute.com/courses/)
