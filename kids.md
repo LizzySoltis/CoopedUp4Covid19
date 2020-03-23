@@ -20,6 +20,9 @@
  - [Draw Every Day with JJK](https://www.youtube.com/playlist?list=PLg9gpgNtuVmFqtseQCKFWZml6dfdLugwt) - live streaming every day at 2pm EST
 - [20+ Cute and Easy Origami for Kids](https://www.easypeasyandfun.com/easy-origami-for-kids/) - Origami for kids projects
 
+### History
+- [Winchester Mystery House video tour](https://winchestermysteryhouse.com/video-tour/)
+
 
 #### Kids Music
  - [Tom Chapin & The Chapin Sisters Stay-at-Home Free Concerts! (daily at 11am PDT)](https://www.facebook.com/events/1047569265628459/)
