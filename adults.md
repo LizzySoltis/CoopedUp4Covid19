@@ -21,6 +21,7 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
  - [Quarantine Sing-a-long! Song of the day posted ~@3PM PST, sing @7PM PST](https://www.facebook.com/groups/quarantinesingalong/)
  - [Garth Brooks on Facebook Live 7 p.m. ET Monday 3/23](https://www.facebook.com/GarthBrooks/)
  - [Berlin Philharmonic Digital Concert Hall (free for a time)](https://www.digitalconcerthall.com/en/home)
+ - [Phish Dinner and a Show Webcast (Tuesday Night 8:30pm free stream + weekly Recipes)](https://phish.com/news/announcing-dinner-and-a-movie-tuesday-evenings/)
 
 #### Languages
  - [Language courses, including conversation practice](https://bendlanguageinstitute.com/courses/)
