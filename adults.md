@@ -31,6 +31,7 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
 
 #### Music playlists
  - [Covid-19 Themed](https://p198.p4.n0.cdn.getcloudapp.com/items/kpuY8Zdz/Image%202020-03-16%20at%2011.31.28%20AM.png?v=1395645f6506d726ee9b03efa8da5d2b)
+ - DJ D-Nice (@dnice) music livestreams on instagram! [Michelle Obama](https://www.cnn.com/videos/entertainment/2020/03/23/dj-d-nice-instagram-live-party-michelle-obama-coronavirus-mxp-vpx.hln) joined in :)
 
 #### Reading
  - [Just read all of JSTOR, because it's free now!](http://www.universitytimes.ie/2020/03/jstor-makes-database-accessible-to-the-public/?fbclid=IwAR0FuFp8RIAGdtvhRJdZWc-PiFc5xj8FMB6LAqHeOvUlK6ZNNBlWXHD9MJ4)
@@ -39,3 +40,4 @@ Although, there are plenty of options in the [kids section](kids.md) you might e
  - [Netflix Party](https://www.netflixparty.com/)
  - [A remote escape room](https://www.tryreason.com/lola-in-space/)
  - [Async video chat with individuals or groups](https://www.marcopolo.me/)
+ - Zoom with friends and play online games such as poker and [codenames](https://www.horsepaste.com/)
